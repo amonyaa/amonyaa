@@ -10,5 +10,5 @@ Amorette `or` Via . [GNC](https://lgbtqia.fandom.com/wiki/Gender_non-conforming)
 
 ∘₊✧──────✧₊∘
 
-
+They / it / fae / shi / shy / nya / she
 
